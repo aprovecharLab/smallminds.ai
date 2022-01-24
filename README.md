@@ -1,0 +1,1 @@
+# smallminds.github.io
