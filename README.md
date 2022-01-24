@@ -1,1 +1,1 @@
-# smallminds.github.io
+# smallminds.ai @ github.io
